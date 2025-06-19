@@ -104,6 +104,4 @@ Recomendamos al Sr. Juan considerar la venta de esta tienda para fortalecer su p
 
 **Autor:** Francisco Antonio Pérez Gámez  
 📧 Email: francisco.apg@outlook.com  
-🔗 [LinkedIn](www.linkedin.com/in/francisco-gámez-0b079a277) | [Portafolio](https://tu-portafolio.com)
-
 ---
